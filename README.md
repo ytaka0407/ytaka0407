@@ -1,4 +1,4 @@
-Hello My name is Yui Takashima.
+Hello My name is Yui.
 
 I have been working in the supply chain of retail logistics for 7 years.
 My main job is order and accepting orders and inventory control.
